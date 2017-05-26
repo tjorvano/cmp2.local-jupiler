@@ -7,6 +7,7 @@
 
 ### CrossMedia Publishing II
 Academiejaar: 206-2017
+
 Opleiding: Bachelor in de grafische en digitale media
 
 
